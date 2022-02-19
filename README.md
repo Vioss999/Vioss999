@@ -2,7 +2,7 @@
 
 **Vioss999**, I love everything I'm doing. I'm just a bored guy who wanna learn some cool stuff
 
-(I love JDM)
+(I love JDM cars)
 
 
 ## What I use
